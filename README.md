@@ -1,3 +1,4 @@
+![229609893-b7b1f261-5941-45af-8322-1ccb2535d36b](https://github.com/Moiseapata/hr-report/assets/146359171/4670259f-99a7-434a-863e-6e44ad7a25fd)
 
 
 Data Used
